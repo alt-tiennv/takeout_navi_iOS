@@ -1,0 +1,1 @@
+# takeout_navi_iOS
